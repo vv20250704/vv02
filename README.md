@@ -12,4 +12,4 @@
 内容中合理布局关键词，增加用户评论和评分，提升互动和活跃度。做好标题、描述和图片的SEO优化，定期更新最新影片，保持内容新鲜。通过高质量外链提高权威性。结合数据分析，不断优化内容和结构，满足用户和搜索引擎需求。
 这样，内容丰富、体验佳、优化科学的网站，才能让“日本AV免费”关键词排名第一。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/vv20250704/vv02 ）</span>
